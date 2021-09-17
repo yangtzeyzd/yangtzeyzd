@@ -9,6 +9,7 @@ Today i exchanged a new keyboard
 give a call to home
 yesterday i forget to write
 Don't be envious, be yourself
+Friday
 Always believe that good things are happening
 adjust myself
 - 🔭 I’m currently working on ...
