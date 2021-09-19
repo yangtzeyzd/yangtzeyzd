@@ -12,6 +12,7 @@ Don't be envious, be yourself
 Friday
 Always believe that good things are happening
 adjust myself
+only oneself can change oneself
 That guy is calling again
 - 🔭 I’m currently working on ...
 - 🌱 I’m currently learning ...
